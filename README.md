@@ -1,0 +1,2 @@
+# stickers
+My stickers collection
